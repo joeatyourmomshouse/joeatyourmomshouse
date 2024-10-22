@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @joeatyourmomshouse
-- 👀 I’m interested in ...lock picking, piano, harmonica, flute, computer hardware repair, and coding.
-- 🌱 I’m currently learning ...c#, lock picking, and java script
-- 💞️ I’m looking to collaborate on ...the og space station 14 game
-- 📫 How to reach me ...viratmpriya@yaho.com
+- 👀 I’m interested in ... lock picking, piano, harmonica, flute, computer hardware repair, and coding.
+- 🌱 I’m currently learning ... c#, lock picking, and java script
+- 💞️ I’m looking to collaborate on ... the og space station 14 game
+- 📫 How to reach me viratmpriya@yahoo.com
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...
 You can pick a lock with paper clips.
