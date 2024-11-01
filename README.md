@@ -6,6 +6,7 @@
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...
 You can pick a lock with paper clips.
+-😑 My youtube channel that I lost access to a long time ago.(email goes not work):  https://www.youtube.com/@viratpriya-yn7um
 <!---
 joeatyourmomshouse/joeatyourmomshouse is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
