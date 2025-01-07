@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @joeatyourmomshouse
 - 👀 I’m interested in ... lock picking, piano, harmonica, flute, computer hardware repair, and coding.
-- 🌱 I’m currently learning ... c#, lock picking, and java script
+- 🌱 I’m currently learning ... c#, lock picking, and java script and c++ for arduino.
 - 💞️ I’m looking to collaborate on ... the og space station 14 game
 - 📫 How to reach me viratmpriya@yahoo.com
 - 😄 Pronouns: ...He/Him
