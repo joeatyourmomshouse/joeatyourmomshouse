@@ -7,7 +7,6 @@
 - ⚡ Fun fact: ...
 You can pick a lock with paper clips.
 
--😑 My youtube channel that I lost access to a long time ago.(email goes not work)(I think that it would also be funny if I have like thousands of subs and not even be the owner anymore):  https://www.youtube.com/@viratpriya-yn7um
 <!---
 joeatyourmomshouse/joeatyourmomshouse is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
